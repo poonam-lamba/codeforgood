@@ -1,1 +1,1 @@
-Hello my name is awesomeness, I am supercool
+My name is awesomeness, I am supercool
